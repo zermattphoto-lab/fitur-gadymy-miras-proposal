@@ -1,1 +1,0 @@
-# fitur-gadymy-miras-proposal
